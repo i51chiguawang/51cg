@@ -1,20 +1,26 @@
-# 吃瓜黑料网最新地址发布页
+# 51吃瓜官网最新地址
 
-官网最新地址：（更新时间：2025/06/11）
+官网最新地址：（更新时间：2025/06/14）
 
-吃瓜黑料网国内最新地址: https://cghl6.com
-吃瓜黑料网国内备用地址：https://75d40.joltswzn.xyz
+51吃瓜永久地址（需要VPN）：https://51cg1.com 51吃瓜海外永久中转：https://cg51.com 
 
-[吃瓜黑料网](https://cghl8.com)海外永久地址(需科学上网):  [cghl8.com](https://cghl8.com)
-
-吃瓜黑料网TG官方群: https://t.me/https_cghl_fun/3
+51吃瓜TG官方群: https://t.me/chigua51_10
 
 失联后如何获取最新地址：
 -
 方法1：邮箱发送任意邮件至 吃瓜黑料网官方邮箱可获取最新地址
-牢记官方邮箱：cghl.fun@gmail.com
+牢记官方邮箱：51cgfun@gmail.com 
+牢记官方邮箱：51cgfun@pm.me
 
-方法2:加入 吃瓜黑料网Telegram公告频道:https://t.me/https_cghl_fun/3
+方法2：关注 51吃瓜twitter：https://x.com/i51chigua1 
+
+方法3:加入 51吃瓜Telegram公告频道:https://t.me/https_51cg_fun_1 
+
+方法4：加入 51吃瓜微信扣扣粉丝群：https://51cgy39.com/?path=/qun.html
+
+近期热瓜攀升版： 抖音300万粉丝女网红 ciu7 惊爆大瓜！巨乳翘臀身材火辣到爆 与金主露脸裸聊啪啪视频泄露！🔥🔥🔥 https://51cgy39.com/?path=/archives/210636/
+
+联系我们： 商务合作🤝 https://t.me/GM_51cg 投稿/问题反馈 👉 https://t.me/chengong001
 
 常见问题：
 -
