@@ -1,8 +1,8 @@
 # 51吃瓜官网最新地址
 
-官网最新地址：（更新时间：2025/06/16）
+官网最新地址：（更新时间：2025/06/19）
 
-51吃瓜最新入口：https://51cgy40.com
+51吃瓜最新入口：https://51cga21.com
 
 51吃瓜永久地址（需要VPN）：https://51cg1.com 
 
@@ -22,11 +22,11 @@
 
 方法3:加入 51吃瓜Telegram公告频道:https://t.me/https_51cg_fun_1 
 
-方法4：加入 51吃瓜微信扣扣粉丝群：https://51cgy40.com/?path=/qun.html
+方法4：加入 51吃瓜微信扣扣粉丝群：https://51cga21.com/?path=/qun.html
 
 近期热瓜攀升版： 抖音300万粉丝女网红 ciu7 惊爆大瓜！巨乳翘臀身材火辣到爆 与金主露脸裸聊啪啪视频泄露！🔥🔥🔥 
 
-https://51cgy40.com/?path=/archives/210636/
+https://51cga21.com/?path=/archives/210636/
 
 联系我们： 商务合作🤝 https://t.me/GM_51cg 
 
