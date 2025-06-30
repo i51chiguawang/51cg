@@ -1,8 +1,8 @@
 # 51吃瓜官网最新地址
 
-官网最新地址：（更新时间：2025/06/28）
+官网最新地址：（更新时间：2025/06/30）
 
-51吃瓜最新入口：https://51cga25.com
+51吃瓜最新入口：https://51cga26.com
 
 51吃瓜永久地址（需要VPN）：https://51cg1.com 
 
@@ -22,11 +22,11 @@
 
 方法3:加入 51吃瓜Telegram公告频道:https://t.me/https_51cg_fun_1 
 
-方法4：加入 51吃瓜微信扣扣粉丝群：https://51cga25.com/?path=/qun.html
+方法4：加入 51吃瓜微信扣扣粉丝群：https://51cga26.com/?path=/qun.html
 
 近期热瓜攀升版： 前小米总监 冯德兵 超级海王签了200多份包养协议 玩的都是顶尖美女 被妻子发现后怒爆性爱视频与协议同步！🔥🔥🔥 
 
-https://51cga25.com/?path=/archives/212459/
+https://51cga26.com/?path=/archives/212459/
 
 联系我们： 商务合作🤝 https://t.me/GM_51cg 
 
