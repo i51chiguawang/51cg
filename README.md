@@ -22,7 +22,7 @@
 
 方法3:加入 51吃瓜Telegram公告频道:https://t.me/https_51cg_fun_1 
 
-方法4：加入 51吃瓜微信扣扣粉丝群：https://51cga26.com/?path=/qun.html
+方法4：加入 51吃瓜微信扣扣粉丝群：https://51cga27.com/?path=/qun.html
 
 近期热瓜攀升版： 顶流女星 Angelababy杨颖 酒店裸舞做爱视频独家曝光 不愧是模特陪酒女出身 玩的就是花啊！🔥🔥🔥 
 
