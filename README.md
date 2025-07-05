@@ -1,8 +1,8 @@
 # 51吃瓜官网最新地址
 
-官网最新地址：（更新时间：2025/07/03）
+官网最新地址：（更新时间：2025/07/05）
 
-51吃瓜最新入口：https://51cga27.com
+51吃瓜最新入口：https://51cga28.com
 
 51吃瓜永久地址（需要VPN）：https://51cg1.com 
 
@@ -22,11 +22,11 @@
 
 方法3:加入 51吃瓜Telegram公告频道:https://t.me/https_51cg_fun_1 
 
-方法4：加入 51吃瓜微信扣扣粉丝群：https://51cga27.com/?path=/qun.html
+方法4：加入 51吃瓜微信扣扣粉丝群：https://51cga28.com/?path=/qun.html
 
 近期热瓜攀升版： 顶流女星 Angelababy杨颖 酒店裸舞做爱视频独家曝光 不愧是模特陪酒女出身 玩的就是花啊！🔥🔥🔥 
 
-https://51cga27.com/?path=/archives/213666/
+https://51cga28.com/?path=/archives/213666/
 
 联系我们： 商务合作🤝 https://t.me/GM_51cg 
 
