@@ -1,8 +1,8 @@
 # 51吃瓜官网最新地址
 
-官网最新地址：（更新时间：2025/07/07）
+官网最新地址：（更新时间：2025/07/10）
 
-51吃瓜最新入口：https://51cga29.com
+51吃瓜最新入口：https://51cga30.com
 
 51吃瓜永久地址（需要VPN）：https://51cg1.com 
 
@@ -22,11 +22,11 @@
 
 方法3:加入 51吃瓜Telegram公告频道:https://t.me/https_51cg_fun_1 
 
-方法4：加入 51吃瓜微信扣扣粉丝群：https://51cga29.com/?path=/qun.html
+方法4：加入 51吃瓜微信扣扣粉丝群：https://51cga30.com/?path=/qun.html
 
 近期热瓜攀升版： TS伪娘阿红劲爆大瓜！油腻大叔浓妆艳抹 专约帅气直男小伙 毒龙口爆后入肛穴 榨精堪比职业骚鸡！🔥🔥🔥 
 
-https://51cga29.com/?path=/archives/214253/
+https://51cga30.com/?path=/archives/214253/
 
 联系我们： 商务合作🤝 https://t.me/GM_51cg 
 
